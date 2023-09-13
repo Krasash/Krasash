@@ -2,7 +2,7 @@ Enthusiastic Designer and Developer.
 
 Available for freelance or any interesting project✨
 
-<a href="mailto:kindakravets@gmail.com">Email</a> me for anything you want to say!
+<a href="mailto:kindakravets@gmail.com">Email me</a> if you have an idea or just want to chat!
 
 <!--
 **Krasash/Krasash** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
