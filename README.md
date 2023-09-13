@@ -1,5 +1,7 @@
 Enthusiastic Designer and Developer.
+
 Available for freelance or any interesting project✨
+
 <a href="mailto:kindakravets@gmail.com">Email</a> me for anything you want to say!
 
 <!--
