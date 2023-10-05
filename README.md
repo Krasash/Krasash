@@ -1,4 +1,4 @@
-Enthusiastic Designer and Developer.
+Enthusiastic Designer and Programmer.
 
 Available for freelance or any interesting project✨
 
